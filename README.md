@@ -1,4 +1,4 @@
 #ciro here
 cf
 
-pô ciro esta parada é zuada!!!!!!!!!
+pÃ´ ciro esta parada Ã© zuada!!!!!!!!!
